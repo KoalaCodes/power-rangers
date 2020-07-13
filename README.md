@@ -1,2 +1,2 @@
 # power-rangers
-### pink ranger is hot 
+### blue ranger is a nerd
